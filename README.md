@@ -674,44 +674,9 @@ CIRCUITOS DE CAPACITOR CONMUTADO
 
 ![image](https://user-images.githubusercontent.com/117923992/212757469-425f0b85-01a1-46c7-ae36-847c786df7d4.png)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 VIDEO:
 
-LINK:
+LINK: https://youtu.be/Rft_FMSb_SQ
 
 CONCLUSIONES:
 
